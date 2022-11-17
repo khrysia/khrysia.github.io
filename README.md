@@ -1,3 +1,3 @@
-# khrysia.github.io
-✰
-# **hi! i'm khrysia and welcome to my personal github page~**
+khrysia.github.io
+｡･ﾟﾟ･　　･ﾟﾟ･｡
+# **hi! i'm ==khrysia== and welcome to my personal github page~**
