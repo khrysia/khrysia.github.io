@@ -4,10 +4,9 @@ khrysia.github.io
 
 ![header](https://user-images.githubusercontent.com/118333233/202356348-9326c231-2014-485e-a96a-c079e79a7f7a.jpg)
 
-.
-.
-.
-![divisor](https://user-images.githubusercontent.com/118333233/202971302-3f239771-74dc-46a9-9d3d-768a06e15a79.png)
+![image](https://user-images.githubusercontent.com/118333233/202972887-638e123b-7ca9-47aa-9964-a91dbbe1b853.png)
+
+
 
 
 ![byf](https://user-images.githubusercontent.com/118333233/202970276-25679b2b-4255-4281-868e-ba21ad6df76e.png)
@@ -17,6 +16,7 @@ i reply late, and i don't use tone tags most of the time so pls remember that! a
 
 ![dni](https://user-images.githubusercontent.com/118333233/202970608-b06b9c7c-497f-4b00-8d7f-c2018061b186.png)
 **(or do not interact)** basic dni + adult strangers .
+![image](https://user-images.githubusercontent.com/118333233/202973096-ebbb7525-1f63-4c06-a331-b212b07e1af2.png)
 
 ![divisor](https://user-images.githubusercontent.com/118333233/202971334-57f766ba-b74b-4477-9446-a499600253ea.png)
 ![divisor](https://user-images.githubusercontent.com/118333233/202971351-3876a992-3d42-4b70-b09c-ea96f763c293.png)
