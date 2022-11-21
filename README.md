@@ -7,6 +7,15 @@ khrysia.github.io
 ***
 
 
+![byf](https://user-images.githubusercontent.com/118333233/202970276-25679b2b-4255-4281-868e-ba21ad6df76e.png)
+**(or before you follow/interact)**
+i reply late, and i don't use tone tags most of the time so pls remember that! also i don't rlly accept strangers so it would be harder for u to get to me (_　_|||)
+
+
+![dni](https://user-images.githubusercontent.com/118333233/202970608-b06b9c7c-497f-4b00-8d7f-c2018061b186.png)
+**(or do not interact)** basic dni + adult strangers .
+
+
 
 ![info](https://user-images.githubusercontent.com/118333233/202583890-af9b3a4d-b991-4c14-b356-7327dfd0306a.png)
 *15* **she/her** intp, 3rd year highschool
@@ -38,6 +47,15 @@ i like to watch netflix and listen to [music](https://open.spotify.com/user/314x
 
 ***
 
-<img width="61" alt="Screenshot 2022-11-20 222430" src="https://user-images.githubusercontent.com/118333233/202907735-354dcdc2-9347-44ea-9b31-fa7354d5512e.png">
+![dislikes](https://user-images.githubusercontent.com/118333233/202970000-d2a63463-4031-4d53-9f4f-425d02ab3d34.png)
 loud noises, bittergourd, dirty places, ppl in the basic dnis lists.
+
+
+
+***
+
+
+![socials](https://user-images.githubusercontent.com/118333233/202970851-f6321d5e-4402-4d5f-8b52-24477c0a40ce.png)
+[facebook](https://www.facebook.com/ashiaaaaaaaaaa/)       ,    [instagram](https://www.instagram.com/khrys1a/)
+
 
