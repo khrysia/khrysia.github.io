@@ -16,10 +16,6 @@ i reply late, and i don't use tone tags most of the time so pls remember that! a
 
 ![dni](https://user-images.githubusercontent.com/118333233/202970608-b06b9c7c-497f-4b00-8d7f-c2018061b186.png)
 **(or do not interact)** basic dni + adult strangers .
-![image](https://user-images.githubusercontent.com/118333233/202973096-ebbb7525-1f63-4c06-a331-b212b07e1af2.png)
-
-![divisor](https://user-images.githubusercontent.com/118333233/202971334-57f766ba-b74b-4477-9446-a499600253ea.png)
-![divisor](https://user-images.githubusercontent.com/118333233/202971351-3876a992-3d42-4b70-b09c-ea96f763c293.png)
 
 
 ![info](https://user-images.githubusercontent.com/118333233/202583890-af9b3a4d-b991-4c14-b356-7327dfd0306a.png)
@@ -61,20 +57,24 @@ i like to watch netflix and listen to [music](https://open.spotify.com/user/314x
 ![image](https://user-images.githubusercontent.com/118333233/202971504-654e5d7c-03b6-4cfa-a65f-30af341e86e9.png)
 
 ***
+![image](https://user-images.githubusercontent.com/118333233/202971507-45354325-1a9f-4ecd-a96f-f63248c084c1.png)
+![image](https://user-images.githubusercontent.com/118333233/202971508-333e5287-269c-4d7f-a053-ffb1d842ee19.png)
 
 ![dislikes](https://user-images.githubusercontent.com/118333233/202970000-d2a63463-4031-4d53-9f4f-425d02ab3d34.png)
 loud noises, bittergourd, dirty places, ppl in the basic dnis lists.
 
 ![image](https://user-images.githubusercontent.com/118333233/202971505-f886d719-d16b-4a96-9303-8bfa5f065bd4.png)
 ![image](https://user-images.githubusercontent.com/118333233/202971506-c091b46a-c86b-4295-8d71-0a6efa30983f.png)
-![image](https://user-images.githubusercontent.com/118333233/202971507-45354325-1a9f-4ecd-a96f-f63248c084c1.png)
-![image](https://user-images.githubusercontent.com/118333233/202971508-333e5287-269c-4d7f-a053-ffb1d842ee19.png)
 
 
 ***
+![image](https://user-images.githubusercontent.com/118333233/202971507-45354325-1a9f-4ecd-a96f-f63248c084c1.png)
+![image](https://user-images.githubusercontent.com/118333233/202971508-333e5287-269c-4d7f-a053-ffb1d842ee19.png)
 
 
 ![socials](https://user-images.githubusercontent.com/118333233/202970851-f6321d5e-4402-4d5f-8b52-24477c0a40ce.png)
 [facebook](https://www.facebook.com/ashiaaaaaaaaaa/)       ,    [instagram](https://www.instagram.com/khrys1a/)
 
 
+![image](https://user-images.githubusercontent.com/118333233/202971507-45354325-1a9f-4ecd-a96f-f63248c084c1.png)
+![image](https://user-images.githubusercontent.com/118333233/202971508-333e5287-269c-4d7f-a053-ffb1d842ee19.png)
