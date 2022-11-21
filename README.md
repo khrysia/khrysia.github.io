@@ -16,6 +16,7 @@ i reply late, and i don't use tone tags most of the time so pls remember that! a
 
 ![dni](https://user-images.githubusercontent.com/118333233/202970608-b06b9c7c-497f-4b00-8d7f-c2018061b186.png)
 **(or do not interact)** basic dni + adult strangers .
+![image](https://user-images.githubusercontent.com/118333233/202972887-638e123b-7ca9-47aa-9964-a91dbbe1b853.png)
 
 
 ![info](https://user-images.githubusercontent.com/118333233/202583890-af9b3a4d-b991-4c14-b356-7327dfd0306a.png)
