@@ -4,7 +4,10 @@ khrysia.github.io
 
 ![header](https://user-images.githubusercontent.com/118333233/202356348-9326c231-2014-485e-a96a-c079e79a7f7a.jpg)
 
-***
+.
+.
+.
+![divisor](https://user-images.githubusercontent.com/118333233/202971302-3f239771-74dc-46a9-9d3d-768a06e15a79.png)
 
 
 ![byf](https://user-images.githubusercontent.com/118333233/202970276-25679b2b-4255-4281-868e-ba21ad6df76e.png)
@@ -15,6 +18,8 @@ i reply late, and i don't use tone tags most of the time so pls remember that! a
 ![dni](https://user-images.githubusercontent.com/118333233/202970608-b06b9c7c-497f-4b00-8d7f-c2018061b186.png)
 **(or do not interact)** basic dni + adult strangers .
 
+![divisor](https://user-images.githubusercontent.com/118333233/202971334-57f766ba-b74b-4477-9446-a499600253ea.png)
+![divisor](https://user-images.githubusercontent.com/118333233/202971351-3876a992-3d42-4b70-b09c-ea96f763c293.png)
 
 
 ![info](https://user-images.githubusercontent.com/118333233/202583890-af9b3a4d-b991-4c14-b356-7327dfd0306a.png)
@@ -23,6 +28,9 @@ i reply late, and i don't use tone tags most of the time so pls remember that! a
 i have a [carrd](https://khrysia.carrd.co/#) as well for more info abt me ✰
 
 
+![image](https://user-images.githubusercontent.com/118333233/202971363-9ce52322-21f3-4d11-a8fc-c609f9dfb820.png)
+![image](https://user-images.githubusercontent.com/118333233/202971366-c6d09d87-f6e7-41b6-9b9a-45405939fa92.png)
+![image](https://user-images.githubusercontent.com/118333233/202971368-bce77d4c-7828-4568-8bb4-6b58229c62e9.png)
 
 
 
@@ -30,6 +38,9 @@ i have a [carrd](https://khrysia.carrd.co/#) as well for more info abt me ✰
 ![interests](https://user-images.githubusercontent.com/118333233/202584107-03a99731-fcb4-4cc1-8b1c-e2b430ece9cf.png)
 i like to watch netflix and listen to [music](https://open.spotify.com/user/314xizivuakkgnr72fijmodajuf4?si=3d630c04bd274a45) (<- that's my spotify profile) i like talking abt music so feel free to hmu if u are into the same music as i am; and i also play games like genshin and prjsk--though its a little embarrasing. i ramble when someone mentions even just a keyword from my fav stuff. i also think dreams are vv interesting and had done lucid dreaming a few times now *!!*
 
+![image](https://user-images.githubusercontent.com/118333233/202971388-bd59c3be-78f3-4bc9-9df4-6c4276a2bcd0.png)
+![image](https://user-images.githubusercontent.com/118333233/202971391-7de8f83e-beaa-440d-9f09-33ebd00959e1.png)
+![image](https://user-images.githubusercontent.com/118333233/202971392-35b629aa-ead6-47da-9bd2-80511eef7fa9.png)
 
 ***
 
@@ -44,12 +55,20 @@ i like to watch netflix and listen to [music](https://open.spotify.com/user/314x
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/58ge6dfP91o9oXMzq3XkIS?utm_source=generator" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+![image](https://user-images.githubusercontent.com/118333233/202971499-fa484ee3-482c-4f39-b2ad-6bdb414e5a3c.png)
+![image](https://user-images.githubusercontent.com/118333233/202971501-b3cb9bb7-a8c4-4810-98bb-65290904f820.png)
+![image](https://user-images.githubusercontent.com/118333233/202971502-cecd6a86-6e16-495f-a777-7fe3774be03c.png)
+![image](https://user-images.githubusercontent.com/118333233/202971504-654e5d7c-03b6-4cfa-a65f-30af341e86e9.png)
 
 ***
 
 ![dislikes](https://user-images.githubusercontent.com/118333233/202970000-d2a63463-4031-4d53-9f4f-425d02ab3d34.png)
 loud noises, bittergourd, dirty places, ppl in the basic dnis lists.
 
+![image](https://user-images.githubusercontent.com/118333233/202971505-f886d719-d16b-4a96-9303-8bfa5f065bd4.png)
+![image](https://user-images.githubusercontent.com/118333233/202971506-c091b46a-c86b-4295-8d71-0a6efa30983f.png)
+![image](https://user-images.githubusercontent.com/118333233/202971507-45354325-1a9f-4ecd-a96f-f63248c084c1.png)
+![image](https://user-images.githubusercontent.com/118333233/202971508-333e5287-269c-4d7f-a053-ffb1d842ee19.png)
 
 
 ***
