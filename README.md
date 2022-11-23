@@ -35,7 +35,8 @@ i have a [carrd](https://khrysia.carrd.co/#) as well for more info abt me ✰
 ![interests](https://user-images.githubusercontent.com/118333233/202584107-03a99731-fcb4-4cc1-8b1c-e2b430ece9cf.png)
 i like to watch netflix and listen to [music](https://open.spotify.com/user/314xizivuakkgnr72fijmodajuf4?si=3d630c04bd274a45) (<- that's my spotify profile) i like talking abt music so feel free to hmu if u are into the same music as i am; and i also play games like genshin and prjsk--though its a little embarrasing. i ramble when someone mentions even just a keyword from my fav stuff. i also think dreams are vv interesting and had done lucid dreaming a few times now *!!*
 
-![image](https://user-images.githubusercontent.com/118333233/203469722-6536c435-d1f3-4632-bdff-853c7950be65.png)
+![image](https://user-images.githubusercontent.com/118333233/203470116-4120b77f-6846-4d32-862c-78745eadb496.png)
+
 
 ***
 
