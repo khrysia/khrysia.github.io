@@ -38,7 +38,7 @@ i like to watch netflix and listen to [music](https://open.spotify.com/user/314x
 ![image](https://user-images.githubusercontent.com/118333233/203470116-4120b77f-6846-4d32-862c-78745eadb496.png)
 
 
-***
+![image](https://user-images.githubusercontent.com/118333233/203471624-20136ec6-eb9d-43a2-92a0-3281de21c8ac.png)
 
 
 **here are some of my `fav song reccs` for u <3**
@@ -56,7 +56,8 @@ i like to watch netflix and listen to [music](https://open.spotify.com/user/314x
 ![image](https://user-images.githubusercontent.com/118333233/202971502-cecd6a86-6e16-495f-a777-7fe3774be03c.png)
 ![image](https://user-images.githubusercontent.com/118333233/202971504-654e5d7c-03b6-4cfa-a65f-30af341e86e9.png)
 
-***
+![image](https://user-images.githubusercontent.com/118333233/203471199-380bdb58-e1fc-4457-9f83-75f7fe377db0.png)
+
 ![image](https://user-images.githubusercontent.com/118333233/202971507-45354325-1a9f-4ecd-a96f-f63248c084c1.png)
 
 ![dislikes](https://user-images.githubusercontent.com/118333233/202970000-d2a63463-4031-4d53-9f4f-425d02ab3d34.png)
@@ -66,8 +67,10 @@ loud noises, bittergourd, dirty places, ppl in the basic dnis lists.
 
 
 
+![image](https://user-images.githubusercontent.com/118333233/203471534-de16bde3-528c-4d2c-aecc-580efbaf0ca2.png)
+
+
 ***
-![image](https://user-images.githubusercontent.com/118333233/202971507-45354325-1a9f-4ecd-a96f-f63248c084c1.png)
 
 
 
@@ -76,4 +79,5 @@ loud noises, bittergourd, dirty places, ppl in the basic dnis lists.
 
 
 ![image](https://user-images.githubusercontent.com/118333233/202971507-45354325-1a9f-4ecd-a96f-f63248c084c1.png)
+
 
