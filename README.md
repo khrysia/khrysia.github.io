@@ -39,7 +39,7 @@ i like to watch netflix and listen to [music](https://open.spotify.com/user/314x
 ***
 
 
-**here are some of my `fav song reccs` for u *:0***
+**here are some of my `fav song reccs` for u <3**
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/086myS9r57YsLbJpU0TgK9?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
