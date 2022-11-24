@@ -67,7 +67,7 @@ loud noises, bittergourd, dirty places, ppl in the basic dnis lists.
 
 
 
-![image](https://user-images.githubusercontent.com/118333233/203471534-de16bde3-528c-4d2c-aecc-580efbaf0ca2.png)
+
 
 
 ***
